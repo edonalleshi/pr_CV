@@ -1,1 +1,2 @@
 # pr_CV
+Une jam Edona Lleshi ,studente ne inxhnieri telekomunikacioni viti i trete,ne Universitetin Politeknik te Tiranes. Aktualisht jam duke mbyllur ciklin bachelor dhe ne perfundimin e praktikes mesimore. Interesi im me i madh eshte ne fushen e programimit dhe shpresoj te kem mundesine te ndjek edhe nje intership per tu zhvilluar me tej. Kam aftesi te mira komunikuese dhe menaxhuese,punoj mire ne grup,jam kreative dhe energjike,fleksible dhe pershtatem shpejt. 
